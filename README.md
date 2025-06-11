@@ -117,7 +117,7 @@ Mục tiêu là ứng dụng công nghệ vào tối ưu hóa quy trình bán h�
 ## Liên hệ
 
 Mọi góp ý, phản hồi vui lòng gửi đến:  
-📩 ntk1542004@gmail.com | 💡 gvhd: hoangthithanhha@dce.udn.vn
+📩 ntk1542004@gmail.com | 💡 gvhd: hoangthithanhha@dudue.udn.vn
 
 ---
 
